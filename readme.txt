@@ -1,1 +1,1 @@
-Lisez-moi
+Moi
